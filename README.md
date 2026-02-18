@@ -92,7 +92,7 @@ Crecer como **Full Stack Developer**, ganar experiencia real, mejorar mis conoci
 
 ## 📫 Contacto
 
-- 📧 Email: **nelson-soria@hotmail.com**
+- 📧 Email: **nelson-soria2@outlook.es**
 - 💼 LinkedIn: https://www.linkedin.com/in/nelson-soria-9a801a3a6/
 - 🌎 Ubicación: Quito, Ecuador
 
